@@ -6,4 +6,5 @@ InkatYellow: Who's Elalabee
 - - -
 The yellow ink now finally stained my senses after its dark journey to find light. Do you want to decipher what glazed the paramount of smiles that's now plastered on my face? Let's find out!
 - - -
-
+Hi! I am Also known as Gabby--a 13 year old happy-go-luck lad that aspires to publish novels. 
+![alt text](https://i.pinimg.com/564x/7a/18/42/7a1842663cc4448a3c9b6dbb0ac658e3.jpg)
