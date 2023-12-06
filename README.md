@@ -1,8 +1,9 @@
-![image](https://github.com/elalabee/elalabee.github.io/assets/152251600/22e61c50-59cc-4780-810d-4e0dbe50084f)# elalabee.github.io
+
 Gabrielle Jewel A. Asay
 - - -
-InkatYellow: Elalabee Writes
+InkatYellow: Who's Elalabee
+![alt text](https://i.pinimg.com/564x/03/6d/60/036d602cbe06182a09da7f986848b622.jpg)
+- - -
+The yellow ink now finally stained my senses after its dark journey to find light. Do you want to decipher what glazed the paramount of smiles that's now plastered on my face? Let's find out!
+- - -
 
-Hi! Did it ever come to you? Those thoughts that just won't stop lingering until you let them dash out with their gained freedom on their prized paper? 
-![snoopy](![image](https://github.com/elalabee/elalabee.github.io/assets/152251600/3fc5c522-3d31-4765-a936-43f8884f4807)
-)
