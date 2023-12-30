@@ -16,3 +16,18 @@ Snoopy is a character from Charles M. Schulz's imagination that first aired on o
  ![fall](https://www.pinterest.ph/pin/44262008830808129/.jpg)
 
 Just like any other pet, snoopy is fond of suppertime! Whenever its time for eating, he ever forgets to enjoy it to the fullest. He even dances to his gratefullness and happiness for a delicious dish. But, hey! Snoopy is an unordinary dog. He is fond of writing, and he even dreams and works on achieving on having the greatest American novel. To help himself to reach his goal, with woodstuck, his bestfriend, and his typewriter on his side, he journeys everyday on his adventures on his imagination.
+
+![friends](https://www.pinterest.ph/pin/11681280277758606/.jpg)
+
+Snoopy is everyone's best friend in the film. He surrounds the his friends with love as he supports them whole-heartedly. He aspires to fulfill his life while being with them-especially Charlie Brown, Sally, and Woodstuck.
+
+![charlie brown](https://www.pinterest.ph/pin/319826011054015765/.jpg)
+
+![woodstuck](https://www.pinterest.ph/pin/1900024820849849/.jpg)
+
+**“Keep looking up…that’s the secret of life.” – Snoopy**
+
+![colorful](https://www.pinterest.ph/pin/653303489722771359/.jpg)
+
+https://github.com/elalabee/elalabee.github.io/assets/152251600/5a2e1bcf-beb4-4e3f-bac5-86371ccb9ff5
+
